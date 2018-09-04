@@ -1,3 +1,3 @@
-hello guys
-good morning
+ am ur friend
+ u are good guy
 
