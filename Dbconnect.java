@@ -1,4 +1,3 @@
-hello bro
-how are u
-gd moring
+hello yy 
+d mrning
 
